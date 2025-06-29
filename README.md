@@ -1,11 +1,5 @@
 # illu/wuz's skinhub
 @illucitopia on x
-
-ilctpia on discord
-
-wuz on osu!
-
-illucitopia on osu!gatari
 # [azer8illu](https://www.mediafire.com/file/29oc302e7957vxj/%2523azer8illu.osk/file)
 ![](https://github.com/user-attachments/assets/a5fd02af-cb56-40a4-99f9-4a32dd8199d9)
 
